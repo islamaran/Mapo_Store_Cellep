@@ -18,4 +18,4 @@ https://www.instagram.com/mari.petrin/
 ícone do carrinho <a href="https://br.freepik.com/vetores/icone">Ícone vetor criado por macrovector - br.freepik.com</a>
 
 -Modelo:
-Marciele Cipriano
+Marciele Cipriano.
